@@ -1,4 +1,4 @@
-                                                                                            I'm Tharun
+Hi there I'm Tharun
 🙋‍♂️ About Me
 🥋 I'm a very Passionate For Programming and Problem-Solving
 🎓 Graduated from KSRM College of Engineering
